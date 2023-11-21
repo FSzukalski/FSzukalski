@@ -1,3 +1,6 @@
+![image](https://i.postimg.cc/q7w9dV44/profile-Photo.png)>
+
+
 #### About Me:
  <p>👋 Hey there! I'm a dynamic and energetic individual with a deep passion for coding and sports and an inherent love for mind and body development. My journey has been a vibrant blend of experiences, from being the owner of Zingoo Carpentry Company to editing a surfing-themed website. As an assistant in H-BUD, a construction company, I honed my skills in various roles.</p>
     <p>My diverse background includes working as a skiing instructor at 'Ski Level' Trzepowo, coaching youth football at Ogniwo Sopot, and contributing as an assistant coach. I bring a wealth of experience, having participated in events like the Polish Surfing Challenge and Polish Freeskiing Open.</p>
